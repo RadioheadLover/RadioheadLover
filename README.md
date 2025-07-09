@@ -1,4 +1,5 @@
-  ![](https://komarev.com/ghpvc/?username=RadioheadLover&color=lightgrey)
+<p align="center">
+<a href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=woowies&color=9f9f9f"/></a>
 
 <p align="center">
 FREE DRAWING OF MYSELF?? HGUHGUH TYSM POOKS
