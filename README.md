@@ -9,7 +9,7 @@
 FREE DRAWING OF MYSELF?? HGUHGUH TYSM POOKS
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/748ac040-df66-44ca-ab61-2e8aacdb7e69" height=500%>
+<img src="https://github.com/user-attachments/assets/748ac040-df66-44ca-ab61-2e8aacdb7e69" height=500>
 
 <p align="center">
 heh
